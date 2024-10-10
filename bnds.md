@@ -11,7 +11,7 @@
 6. Coordenação e subordinação.
 7. Emprego dos sinais de pontuação.
 8. Concordância verbal e nominal.
-9. Regência verbal e nominal.
+9.  Regência verbal e nominal.
 
 ### **LÍNGUA INGLESA**
 1. Compreensão de texto em língua inglesa.
